@@ -15,6 +15,7 @@ i like lemon demon, glitch productions' newer shows (MD, TADC, TGD) and pressure
 
 dni if you find me or my bf weird idk ill just block you if i dont like you
 
+↓↓↓ stamps & more (they're supppsed to b animated idk why GitHub won't display them as GIFs)
 ![Tumblr_l_275835005880280](https://github.com/user-attachments/assets/a2cf9f3f-24d5-47fb-afd5-bb01cb1db982)
 <img width="99" height="57" alt="Tumblr_l_275962890594672" src="https://github.com/user-attachments/assets/7ab71ecf-9eff-4045-b15d-5d00c005455d" />
 ![Tumblr_l_81758257159792](https://github.com/user-attachments/assets/437992fb-49dc-4648-a323-a9534f7ddbd7)
