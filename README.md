@@ -2,7 +2,7 @@ hi im citrus/painter
 
 take my lemon demon quiz > https://uquiz.com/r8eMko
 
-<img width="379" height="108" alt="Untitled50_20250722182055" src="https://github.com/user-attachments/assets/2764233e-fc6b-4882-ad33-98bb3dc222c6" />
+<img width="179" height="108" alt="Untitled50_20250722182055" src="https://github.com/user-attachments/assets/2764233e-fc6b-4882-ad33-98bb3dc222c6" />
 
 
 about me -------
