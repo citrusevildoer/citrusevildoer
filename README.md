@@ -1,3 +1,5 @@
+<iframe data-testid="embed-iframe" style="border-radius:12px" src="https://open.spotify.com/embed/track/3MbGijhyKSAmkqf072PJgH?utm_source=generator" width="100%" height="152" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+
 hi im citrus/painter
 
 take my lemon demon quiz > https://uquiz.com/r8eMko
@@ -11,7 +13,7 @@ I'm a trans man and i use he/they pronouns
 
 im otherkin (computerkin, robotkin, demonkin, dogkin) and fictionkin
 
-i like lemon demon, glitch productions' newer shows (MD, TADC, TGD) and pressure
+i like lemon demon, glitch productions' newer shows (MD, TADC, TGD) and pressure (pressure fandom dni pls)
 
 dni if you find me or my bf weird idk ill just block you if i dont like you
 
