@@ -12,7 +12,7 @@ I'm a trans man and i use he/they pronouns
 
 im otherkin (computerkin, robotkin, demonkin, dogkin) and fictionkin
 
-i like lemon demon, glitch productions' newer shows (MD, TADC, TGD) and pressure (pressure fandom dni pls)
+i like lemon demon, glitch productions' newer shows (MD, TADC, TGD), south park (fandom dni) and pressure (fandom dni)
 
 dni if you find me or my bf weird idk ill just block you if i dont like you
 
