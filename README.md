@@ -28,7 +28,7 @@ dni if you find me or my bf weird idk ill just block you if i dont like you
 ![digwes1-7f0c6930-0773-4c7e-915b-f9ff3f50f7b6](https://github.com/user-attachments/assets/87d80787-b5a5-469d-b6e6-221ed3741141)
 
 
-
+![Tumblr_l_190494746610967](https://github.com/user-attachments/assets/a20c4556-e6a2-426b-90e2-7eb4697d1831)
 ![Tumblr_l_507248226399069](https://github.com/user-attachments/assets/6f4f8ecf-2546-4762-8e3d-4858ad305ab1)
 ![Tumblr_l_275979656272519](https://github.com/user-attachments/assets/e139f108-9505-4a88-a5cf-23819fdabf0d)
 ![Tumblr_l_275982153539827](https://github.com/user-attachments/assets/4ec6f969-e2ae-4349-9f62-3cb9364acecf)
