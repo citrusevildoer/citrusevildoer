@@ -33,4 +33,8 @@ dni if you find me or my bf weird idk ill just block you if i dont like you
 ![Tumblr_l_507248226399069](https://github.com/user-attachments/assets/6f4f8ecf-2546-4762-8e3d-4858ad305ab1)
 ![Tumblr_l_275979656272519](https://github.com/user-attachments/assets/e139f108-9505-4a88-a5cf-23819fdabf0d)
 ![Tumblr_l_275982153539827](https://github.com/user-attachments/assets/4ec6f969-e2ae-4349-9f62-3cb9364acecf)
-![Tumblr_l_122252019708206](https://github.com/user-attachments/assets/db522e2e-89c4-44c8-89b3-c34a30d4b10e)
+![Tumblr_l_122252019708206](https://github.com/user-attachments/assets/db522e2e-89c4-44c8-89b3-c34a30d4b10e)![ezgif-45ee503a0e759](https://github.com/user-attachments/assets/90be8a68-81c9-41a9-a4cc-0c4e9aaba361)
+![ezgif-470ba865f03352](https://github.com/user-attachments/assets/76706d17-437e-46e7-b3b9-fa1a3268d274)
+![ezgif-4eac22a24c1b5](https://github.com/user-attachments/assets/27f36f80-294c-45db-8e4a-07fa09957d7f)
+![ezgif-434c59da1db21](https://github.com/user-attachments/assets/4e66660e-069a-4199-9895-7777aa4906bb)
+
