@@ -1,3 +1,4 @@
+![](https://i.ibb.co/SNfjsnF/beef-bastard-sun-thing-guy-1.png)
 
 hi im citrus/painter/edgar
 
