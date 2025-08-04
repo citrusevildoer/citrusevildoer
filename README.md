@@ -2,6 +2,8 @@
 
 hi im citrus/painter/edgar
 
+read my strawpage https://citrusevildoer.straw.page
+
 take my lemon demon quiz > https://uquiz.com/r8eMko
 
 ![](https://komarev.com/ghpvc/?username=citrusevildoer&color=yellow)
