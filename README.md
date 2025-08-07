@@ -17,8 +17,10 @@ I'm a trans man and i use he/they pronouns
 
 im otherkin (computerkin, robotkin, demonkin, dogkin) and fictionkin
 +more on this here https://pronouns.cc/@citrusevildoer/f
-I am not a kinnie, I am fictionkin and nonhuman, and I believe & support physical nonhumans/therians
+
+I am not a kinnie, I am fictionkin and nonhuman, and I am, believe in & support physical nonhumans/therians
 ![Screenshot_20250807_153158](https://github.com/user-attachments/assets/76c91ba9-95b9-4686-bee3-28c7e2dc7d99)
+I will gladly explain it to you if you're confused 
 
 
 
