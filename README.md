@@ -26,6 +26,8 @@ I will gladly explain it to you if you're confused
 
 i like lemon demon, glitch productions' newer shows (MD, TADC, TGD), south park (fandom dni) and pressure (fandom dni)
 
+i have many more interests but i am not interested in the fandoms nor fans and would rather not interact with them or have them be public.
+
 dni if you find me or my bf weird idk ill just block you if i dont like you
 
 ↓↓↓ stamps & more (they're supppsed to b animated idk why GitHub won't display them as GIFs)
