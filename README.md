@@ -1,4 +1,3 @@
-
-<img width="1012" height="1012" alt="Project_19" src="https://github.com/user-attachments/assets/f5b63d5f-68d5-4d59-bc0a-ba24b7f4178c" />
+![Tumblr_l_3329657418582](https://github.com/user-attachments/assets/f1d67bdb-d019-4b04-91ce-5936cc90cf04)
 
 ![](https://komarev.com/ghpvc/?username=citrusevildoer&color=F450ED&style=flat)
